@@ -1,1 +1,0 @@
-# INT-CYB-1-Basic
